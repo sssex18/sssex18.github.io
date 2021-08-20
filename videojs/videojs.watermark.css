@@ -1,0 +1,13 @@
+.vjs-watermark {
+	position: absolute;
+	display: inline;
+	z-index: 2000;
+	text-align: center;
+}
+.vjs-watermark .ip {
+	position: absolute;
+	top: 0;
+	left: 0;
+	color: white;
+	width: 100%;
+}
