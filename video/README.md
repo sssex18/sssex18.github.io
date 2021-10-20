@@ -1,3 +1,5 @@
+[indiefoxx-clip_002_001.mp4](https://sssex18.github.io/video/indiefoxx-clip_002_001.mp4)
+
 [indiefoxx-clip_001.mp4](https://sssex18.github.io/video/indiefoxx-clip_001.mp4)
 
 [krystal205.mp4](https://sssex18.github.io/video/krystal205.mp4)
