@@ -1,3 +1,5 @@
+[clip-chardy-queen.mp4](https://sssex18.github.io/video/clip-chardy-queen.mp4)
+
 [indiefoxx-clip_002_001.mp4](https://sssex18.github.io/video/indiefoxx-clip_002_001.mp4)
 
 [indiefoxx-clip_001.mp4](https://sssex18.github.io/video/indiefoxx-clip_001.mp4)
