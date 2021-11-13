@@ -1,6 +1,6 @@
 
 [hls](https://sssex18.github.io/hls/)
 
-[image](https://github.com/sssex18/sssex18.github.io/blob/main/image/README.md)
+[image](https://sssex18.github.io/image/)
 
 [video](https://sssex18.github.io/video)
